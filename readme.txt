@@ -8,6 +8,8 @@ dddd
 
 jeszcze jedna zmiana
 
+zmiana w masterezegggg
+
 gggg
 
 
